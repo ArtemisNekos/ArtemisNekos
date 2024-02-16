@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ArtemisNekos
+- 👀 I’m interested in music and art
+- 🌱 I’m currently learning c#, php
+- 📫 How to reach me - why are you want to do this huh?
+- 😄 Pronouns: nah, call me dummy or artemis
+- ⚡ Fun fact: bro he\his is MJ's property
